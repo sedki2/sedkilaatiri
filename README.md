@@ -1,0 +1,2 @@
+# sedkilaatiri
+Salut tout le monde ! Je m'appelle Sedki Laatiri et je suis un consultant en Marketing Digital originaire de Paris. Je suis fier d’accompagner mes clients dans les sujets suivants : Publicité sur les réseaux sociaux, Référencement naturel, Community management, Branding, Shopify et création de site WordPress  Très flexible, je vais m'assurer que vous soyez 100% satisfaits de mon travail. N'hésitez pas à me contacter, je serai heureux de répondre à vos questions. À bientôt 🙂
